@@ -1,4 +1,0 @@
-# jongho
-# jongho
-# jongho
-# jongho
